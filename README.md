@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Erol.
+- 👀 I’m a nuclear engineer and interested in EdTech.
+- 📫 You can find me at https://beacons.page/erolbicer
