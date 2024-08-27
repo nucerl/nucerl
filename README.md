@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Erol.
-- 👀 I'm a nuclear engineer and I am interested in EdTech.
-- 📫 You can find me at https://www.erolbicer.com/
+- 👀 I'm a nuclear engineer.
+- 📫 You can find me at www.erolbicer.com
