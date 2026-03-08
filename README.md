@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Erol.
 - 👀 I'm a nuclear engineer.
-- 📫 You can find me at www.erolbicer.com
